@@ -3,7 +3,7 @@
 ### Estudio en UTEC, CS.🐱‍👤
 ### Disfruto mucho de la animación japonesa.🐱‍🏍
 - La ciencia no miente. 🐱‍🐉
-Por eso puedes confiar en ella.🐱‍🚀🐱‍🚀
+Por eso puedes confiar en ella.🐱‍🚀🐱‍🚀..
 -Dr. Stone
 ![This is an image](https://pbs.twimg.com/media/Es2_cqsXIAgQnLL?format=jpg&name=medium)
 <!--
