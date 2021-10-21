@@ -2,6 +2,7 @@
 ### Nací en una ciudad muy hermosa, estoy hablando de *_Cajamarca_*, justo en el norte del *Perú*. 
 ### Estudio en UTEC, CS.🐱‍👤
 ### Disfruto mucho de la animación japonesa.🐱‍🏍
+-[]Terminar la carrrera.
 - La ciencia no miente. 🐱‍🐉
 Por eso puedes confiar en ella.🐱‍🚀🐱‍🚀..
 -Dr. Stone
